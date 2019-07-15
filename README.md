@@ -17,7 +17,7 @@ Description.
 
 ```
 
-getting undressed ya (getting unrest)
+getting undressed(?) ya (getting unrest)
 getting undressed ya
 getting undressed ya
 fucking undressed
@@ -36,6 +36,33 @@ x
 release me to fall
 
 gotta right to esketit
+
+SECOND PART 1:21
+
+fucking it right
+fucking it right
+wait
+fucking it right
+ey ya
+fucking around
+fucking around
+back to your rack and
+light the proper way duuuh
+
+go get a lighter
+fucking allright now
+FUCK YOUR BLOOD YEAH
+fucking allright and dead yeah
+greetings with vicious intent yeah
+
+ALL THE MYSTERIES UNRAVELED
+- WON'T REALLY SOLVE THEMSELVES
+YOUR STANCE SO SUBTLE
+I'VE SEEN THIS BEFORE
+FUCKING RATS SPREADING ON GROUNDS
+
+
+
 
 
 

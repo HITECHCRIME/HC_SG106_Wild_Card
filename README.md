@@ -9,14 +9,13 @@
 Description.
 Night Lovell Type Beat Honda (Prod. NetuH)
 
-**Title:** x / **Featuring:** MOTHNODE
+**Title:** WILD CARD / **Featuring:** MOTHNODE
 
 **Production:** NetuH / **Lyrics:** MOTHNODE
 
 ## Lyrics
 
 ```
-
 getting undressed(?) ya (getting unrest)
 getting undressed ya
 getting undressed ya
@@ -68,11 +67,6 @@ PRAGMATIC MATTER TO STAND TALL WITHSTAND ALL ALONE
 
 YOUR BLOOD WON'T SAVE YOUR SOUL
 YOUR PAIN SO FOUL CAN'T ERASE BY ITSELF
-
-
-
-
-
 
 ```
 

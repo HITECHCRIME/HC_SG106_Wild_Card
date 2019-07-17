@@ -7,11 +7,11 @@
 ## Project Data
 
 Description.
+Night Lovell Type Beat Honda (Prod. NetuH)
 
+**Title:** x / **Featuring:** MOTHNODE
 
-**Title:** x / **Featuring:** x
-
-**Production:** x / **Lyrics:** x
+**Production:** NetuH / **Lyrics:** MOTHNODE
 
 ## Lyrics
 
